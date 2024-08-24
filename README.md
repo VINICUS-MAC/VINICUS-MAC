@@ -1,11 +1,13 @@
 ## Bem vindos ##
--Sou Vinicius Macedo
+- Sou Vinicius Macedo 😺
 
--tenho 16 anos
+- Tenho 16 anos
 
--um dia serei um expert em phytom
+- Um dia serei um expert em phytom
 
--Por hoa pretendo ser efetvado para funcionario efetivado na empresa que trabalho (uninter)
+- Etudo no ALURA
+
+- Por hoa pretendo ser efetvado para funcionario efetivado na empresa que trabalho (uninter)
 
 
 
