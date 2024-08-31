@@ -7,11 +7,6 @@
 
 - Etudo no ALURA
 
-- Por hoa pretendo ser efetvado para funcionario efetivado na empresa que trabalho (uninter)
+- Por hora pretendo ser efetivado para funcionario efetivado na empresa que trabalho (uninter)
 
-
-
-
-
-
-
+ ![gato](https://github.com/user-attachments/assets/7101bf2e-1e3a-43e9-9ec2-7d39fb39a439)
