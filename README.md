@@ -5,7 +5,7 @@
 
 - Um dia serei um expert em phytom
 
-- Etudo no ALURA
+- Estudo no ALURA
 
 - Por hora pretendo ser efetivado para funcionario efetivado na empresa que trabalho (uninter)
 
